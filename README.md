@@ -49,3 +49,4 @@ You can download the zip file [here](https://drive.google.com/file/d/1p6Z1uuA_9j
 ![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446957332955137/47.png)
 ![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446964647690240/48.png)
 # [Back to the top](https://gideon-grey.github.io/Fluffys-house-stickers/)
+# [Back to the main page](https://gideon-grey.github.io/Fluffys-house/)
