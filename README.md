@@ -1,4 +1,17 @@
 ## Fluffy's stickers
-You can download the zip file [here](https://drive.google.com/file/d/1p6Z1uuA_9j4TlQfTrFFuxFpMwYo9a19g/view) or download the stickers down below.
+You can download the zip file [here](https://drive.google.com/file/d/1p6Z1uuA_9j4TlQfTrFFuxFpMwYo9a19g/view) or download the stickers down below. 
 ![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446657482162196/1.png)
 ![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446667703418887/2.png)
+![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446670366932992/3.png)
+![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446672291987456/4.png)
+![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446674561105935/5.png)
+![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446676154941447/6_.png)
+![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446678504013839/7.png)
+![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446681297158147/8.png)
+![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446684266987540/9.png)
+![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446687974752266/10.png)
+![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446785844641802/11.png)
+![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446788755226625/12.png)
+![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446790609109013/13.png)
+![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446792874033183/14.png)
+![GitHub Logo](https://cdn.discordapp.com/attachments/589445900158631939/589446794853744640/15.png)
